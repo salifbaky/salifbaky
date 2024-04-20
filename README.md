@@ -8,6 +8,5 @@ I'm looking to collaborate on many projects to see all the methodoly development
 <br><br>
 •How to reach me: bakayoko.salif@eranoveacademy.ci
 More about SAYNA: https://sayna.io/
-More about me: https://www.linkedin.com/in/lo%C3%AFc-dominguez-30a694122/
 <br><br>
 --> To the pleasure of exchanging and/or collaborating together <-
